@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国文旅市场监管加强，查处超千家违规经营旅行社</h3><br><p>洋河梦之蓝批价上调4%，白酒全产业链盈利优化。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>全球粮食安全峰会召开，达成百亿美元援助计划应对饥荒</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>比亚迪涨超6.7%，刀片电池外供比例持续提升</h3><br><p>AI大模型企业启动申购，ToB付费转化率超行业平均水平。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>AI音乐生成工具普及，原创音乐产出效率提升10倍。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>中国中冶冶金工程优势：新能源冶金赛道的领先地位。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>金融大模型赋能投研，AI研报生成效率提升5倍</h3><br><p>知名私募调研卫星互联网标的，低轨卫星组网计划披露。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>长安汽车涨停封板，突破后的延续性如何判断</h3><br><p>北向资金单日买入三安光电9000万，LED龙头获外资持续流入。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>虚拟电厂建设导则出台，虚拟电厂标的全线拉升</h3><br><p>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>乡村振兴政策加码，农业农村板块集体上涨</h3><br><p>北京国际铁人三项赛举办，吸引全球千名选手参赛。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>国内政策性降息落地，宽信用进程加速推进</h3><br><p>全国朱鹮种群数量突破1万只，从7只恢复至广泛分布。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>纸价开启新一轮提价潮，造纸板块盈利迎来修复</h3><br><p>全球医疗健康支出突破10万亿美元，老龄化驱动需求增长。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>储能装机强制配比政策升级，储能产业链标的拉升</h3><br><p>全国湿地保护率达55%，新增国家湿地公园超百个。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>海尔智家稳步上行，慢牛趋势下的持仓节奏。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼</h3><br><p>大熊猫野生种群数量突破2000只，受威胁等级下调至易危。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>长白山暑期避暑游热度高，日均接待游客超2万人次</h3><br><p>机构资金集中买入科大讯飞7亿，AI龙头获机构抱团。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>CBA总决赛辽宁队4-1夺冠，实现三连冠建立王朝</h3><br><p>出口退税政策优化，出口导向型标的拉升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP</h3><br><p>全国绿色出行创建行动推进，超百个城市建成绿色交通体系。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>头部机构组团到访中药创新药标的，医保谈判结果超预期</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>河北建工涨超2.7%，雄安新区基建订单饱满</h3><br><p>意大利经济增速超预期，旅游业拉动经济强劲增长。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>璞泰来涨超5.0%，负极材料行业格局优化</h3><br><p>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>地下综合管廊规划，地下管网标的全线异动</h3><br><p>恒瑞医药创新药管线：研发投入进入收获期的业绩展望。<br><br> | 来源：<code>www.winfae.com
