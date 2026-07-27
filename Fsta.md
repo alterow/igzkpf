@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力</h3><br><p>梅花生物氨基酸价格反弹，前三季度业绩预增超40%。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>房贷利率动态调整机制优化，重点城市房贷利率进一步下行</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全国绿色供应链示范企业超千家，带动上下游产业低碳转型</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>上半年全国实际使用外资同比增长3.1%，高技术产业占比超40%</h3><br><p>中国现代五项队世锦赛夺得金牌，全能项目实现突破。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>全国城市马拉松赛事数量突破1500场，覆盖所有省份</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>上海建工涨超2.6%，长三角基建订单回暖</h3><br><p>全国生物燃料乙醇产能突破500万吨，替代传统化石燃料。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>低空经济发展规划出台，低空经济标的拉升。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>全国工业用水重复利用率达92%，节水型工业体系建成</h3><br><p>国产科幻小说海外获奖，中国想象力走向全球读者。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>AI智能写作工具普及，内容创作者产出效率提升2倍</h3><br><p>丹麦经济稳健增长，风电产业全球领先。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>铂价上涨10%，燃料电池催化剂板块迎来涨价催化</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全国新增10家5A级景区，文旅品质持续升级</h3><br><p>西部大开发新规划出台，西部基建标的全线拉升。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>燃料电池汽车示范应用，燃料电池标的全线异动</h3><br><p>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>全国新型电力系统建设提速，新能源消纳能力提升35%</h3><br><p>政策性银行加大降息力度，基建项目融资成本大幅下降。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>超200家机构到访数据要素龙头，数据确权商业模式落地</h3><br><p>新能源赛道集体反弹：动力电池、光伏、储能谁是领涨主线。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>储能装机强制配比政策升级，储能产业链标的拉升</h3><br><p>中国门球队世锦赛夺得冠军，中老年运动项目国际领先。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>国产网络文学出海市场规模突破40亿美元，全球读者超2亿</h3><br><p>消费券集中发放，大消费板块迎来情绪催化。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>外资持续流入亿纬锂能，储能龙头外资持仓占比突破4%。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌</h3><br><p>全国首套房住房贷款"认房不认贷"政策全面落地。<br><br> | 来源：<code>www.tpyqczl.com
