@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>产业基金组团调研后集中增持光模块企业，合计投入超10亿</h3><br><p>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本</h3><br><p>中国中铁一带一路布局：海外基建订单的长期增长逻辑。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>金风科技风电装机超预期，前三季度业绩预增超40%</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>生物育种产业化政策，转基因种业标的走强</h3><br><p>中国通号高铁信号订单高增，单季业绩预告超预期。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>钾肥价格连续上涨10%，钾肥板块盈利弹性释放</h3><br><p>招商公路平台化布局：全国公路网络的整合成长逻辑。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>意大利经济增速超预期，旅游业拉动经济强劲增长</h3><br><p>中国中车全球轨道交通布局：一带一路带来的增量空间。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>赣锋锂业突破20日线，短期反弹窗口开启</h3><br><p>电竞入亚成绩亮眼，电竞游戏产业链标的拉升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>定向降息支持绿色电力，绿电运营板块获定向利好</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>央行表态适时加大政策力度，后续降准降息仍有空间</h3><br><p>白酒批价连续上涨，高端白酒板块盈利弹性释放。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒</h3><br><p>东方财富互联网券商生态：流量变现的长期成长逻辑。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>比亚迪垂直整合优势：供应链自主可控下的抗风险能力</h3><br><p>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>杭州马拉松开跑，3.5万跑者体验钱塘江赛道</h3><br><p>国产EDA工具实现全流程覆盖，半导体软件标的走强。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>招商银行股价修复，银行板块高股息属性获资金青睐</h3><br><p>国际油价回落至75美元/桶，地缘冲突溢价逐步消化。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>亨通光电涨超4.4%，海洋能源业务贡献增量</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>派能科技户用储能爆发，单季业绩预告超预期。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>国际油价大幅上涨，油气开采板块全线拉升</h3><br><p>电竞入亚成绩亮眼，电竞游戏产业链标的拉升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>中国男足晋级世界杯预选赛亚洲区18强，创造近年最佳战绩</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>AI大模型企业启动申购，ToB付费转化率超行业平均水平</h3><br><p>汽车数据安全管理新规，汽车软件板块集体上涨。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>理想汽车家庭用户定位：精准产品定位下的销量爆发逻辑。<br><br> | 来源：<code>www.zkcom-iot.com
