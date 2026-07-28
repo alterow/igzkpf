@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>https://cn-yinghuashipin.com.cn
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>https://cn91.com.cn
+</code></p><br><br><h3>科大讯飞冲高回落，AI算力主线分歧中仍有韧性</h3><br><p>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性。<br><br> | 来源：<code>https://com91.com.cn
+</code></p><br><br><h3>北向资金单日净流入120亿，核心资产获外资集中扫货</h3><br><p>央行表态保持流动性合理充裕，后续政策工具储备充足。<br><br> | 来源：<code>https://cpp-official-app.com
+</code></p><br><br><h3>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口</h3><br><p>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局。<br><br> | 来源：<code>https://crazy-winner-aaa.com
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>疫情新变种出现，医药防护板块集体走强。<br><br> | 来源：<code>https://csfgae.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>国产游戏上半年出海营收突破80亿美元，文化输出能力增强。<br><br> | 来源：<code>https://cuimiandailaidexingfushenghuo.cn
+</code></p><br><br><h3>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值</h3><br><p>科大讯飞放量上涨6.8%，AI教育产品落地加速。<br><br> | 来源：<code>https://cun-zhi-tiaozhan.com.cn
+</code></p><br><br><h3>三元正极材料价格上调6%，锂电材料产业链景气回升</h3><br><p>天合光能N型技术优势：光伏行业技术迭代下的领先地位。<br><br> | 来源：<code>https://da-feiji.com.cn
+</code></p><br><br><h3>全国地下水超采综合治理成效显著，水位回升超2米</h3><br><p>头部券商到访家电出海龙头，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://da-xiangjiao-yiren-wang.com.cn
+</code></p><br><br><h3>AI手语翻译大模型上线，助力千万听障人士沟通无障碍</h3><br><p>AI手语翻译大模型上线，助力千万听障人士沟通无障碍。<br><br> | 来源：<code>https://da-xuexiao-hua.com.cn
+</code></p><br><br><h3>头部券商到访调味品龙头，渠道库存去化周期数据披露</h3><br><p>全国轮滑锦标赛举办，参赛选手破万年龄跨度覆盖3-70岁。<br><br> | 来源：<code>https://dafuweng-caipiao-official.com
+</code></p><br><br><h3>世界贸易组织第13届部长级会议召开，达成多项多边协议</h3><br><p>陕西煤业高股息兑现，单季业绩预告超预期。<br><br> | 来源：<code>https://daguangpigu.com.cn
+</code></p><br><br><h3>工业金属集体上涨，有色板块迎来全面行情催化</h3><br><p>梅西领衔阿根廷队来华友谊赛3-1取胜，现场超5万球迷观赛。<br><br> | 来源：<code>https://daguangpiguspwangzhan.com.cn
+</code></p><br><br><h3>全国"无废城市"试点扩围至100个，固废资源化利用提速</h3><br><p>全国游泳冠军赛落幕，多名小将打破全国纪录。<br><br> | 来源：<code>https://daman-guan-web.com
+</code></p><br><br><h3>中国书法申遗成功，传统艺术走向世界舞台</h3><br><p>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆。<br><br> | 来源：<code>https://damanguan-app-android.com
+</code></p><br><br><h3>智慧景区全覆盖，全国5A景区全部实现刷脸入园智能导览</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>https://danaizi.net.cn
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期。<br><br> | 来源：<code>https://danushengpigu.com.cn
+</code></p><br><br><h3>市场永远不缺机会，缺的是耐心等待属于自己的机会</h3><br><p>“双减”成效显著，校外违规培训机构清零率超98%。<br><br> | 来源：<code>https://daoguojingpin.org.cn
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>https://daohang-zh.com.cn
