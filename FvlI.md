@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>天合光能N型技术优势：光伏行业技术迭代下的领先地位。<br><br> | 来源：<code>https://dapigugame.com.cn
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>全国城市黑臭水体治理完成率100%，居民亲水空间增加。<br><br> | 来源：<code>https://dapigugames.com.cn
+</code></p><br><br><h3>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持</h3><br><p>卫星互联网频率分配落地，卫星制造板块集体上涨。<br><br> | 来源：<code>https://dapigumanhua.com.cn
+</code></p><br><br><h3>QFII集中调研宠物食品龙头，海外市场渗透率数据公开</h3><br><p>知名私募调研钙钛矿设备标的，核心设备交付周期缩短。<br><br> | 来源：<code>https://dapigusp.com.cn
+</code></p><br><br><h3>AI语音合成技术突破，克隆声音仅需3秒样本</h3><br><p>循环经济发展规划，资源回收标的全线拉升。<br><br> | 来源：<code>https://dapiguvideo.com.cn
+</code></p><br><br><h3>全国老字号品牌超万家，国潮复兴带动传统产业转型升级</h3><br><p>客家文化申遗工作推进，千年迁徙文化得到系统性保护。<br><br> | 来源：<code>https://dapiguvk.com.cn
+</code></p><br><br><h3>房贷利率动态调整机制优化，重点城市房贷利率进一步下行</h3><br><p>超220家机构到访AI教育龙头，付费用户规模环比大增。<br><br> | 来源：<code>https://dapiguweb.com.cn
+</code></p><br><br><h3>拓普集团放量拉升6.7%，汽车零部件订单超预期</h3><br><p>稀土价格政策收储后上涨12%，稀土永磁板块集体异动。<br><br> | 来源：<code>https://dapiguxiaoshuo.com.cn
+</code></p><br><br><h3>小康股份涨超7.7%，新能源汽车业务盈利修复</h3><br><p>全国冰雪运动参与人数突破3亿，带动冰雪产业规模超8000亿。<br><br> | 来源：<code>https://dapiguzuowen.com.cn
+</code></p><br><br><h3>云从科技人机协同大模型3.0发布，赋能人机交互场景</h3><br><p>外资单日大额买入宁德时代25亿，动力电池龙头获持续流入。<br><br> | 来源：<code>https://dapipi.com.cn
+</code></p><br><br><h3>美联储第三次降息落地，全球风险偏好显著提升</h3><br><p>国内自驾游人次破10亿，新能源自驾路线成热门选择。<br><br> | 来源：<code>https://dayanghei.com.cn
+</code></p><br><br><h3>算力需求持续高增：IDC、光模块、服务器的产业链机会</h3><br><p>长电科技放量上涨4.8%，先进封装订单饱满。<br><br> | 来源：<code>https://dianfeng-guoji.com.cn
+</code></p><br><br><h3>海尔智家稳步上行，白电行业格局持续优化</h3><br><p>超250家机构到访AI大模型企业，ToB付费转化率超预期。<br><br> | 来源：<code>https://dianying-zaixianguankanmianfei.com.cn
+</code></p><br><br><h3>上半年全国软件业营收同比增长11.8%，数字产业持续向好</h3><br><p>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放。<br><br> | 来源：<code>https://dianyingcang.com.cn
+</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https://dingsheng-5262-web.com
+</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期</h3><br><p>中天科技放量上涨4.7%，海缆+储能双轮驱动。<br><br> | 来源：<code>https://diyiban-zhu.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破1.5万亿元，赛事经济火热</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>https://diyici-derenqi.com.cn
+</code></p><br><br><h3>煤层气开发利用政策，煤层气标的全线拉升</h3><br><p>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒。<br><br> | 来源：<code>https://diyiciderenqi.com.cn
+</code></p><br><br><h3>中国滑板队奥运会夺得银牌，新兴项目快速崛起</h3><br><p>文旅部推出100条乡村精品线路，带动县域文旅消费。<br><br> | 来源：<code>https://diyiciderenqidongman.com.cn
+</code></p><br><br><h3>山西汾酒渠道下沉：清香型白酒的全国化深度渗透逻辑</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://diyicirenqi.com.cn
