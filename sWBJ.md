@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放。<br><br> | 来源：<code>https://new-muguashipin.com.cn
+</code></p><br><br><h3>A股总市值突破90万亿元，资本市场改革红利持续释放</h3><br><p>新希望异动拉升3.9%，生猪出栏量持续高增。<br><br> | 来源：<code>https://new-nantongwang.com.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>兆易创新涨超4.4%，存储芯片价格触底反弹。<br><br> | 来源：<code>https://new-nencaoyingyuan.com.cn
+</code></p><br><br><h3>风电塔筒价格单月上涨6%，风电制造环节盈利改善</h3><br><p>革命老区振兴发展新政策落地，缩小区域发展差距。<br><br> | 来源：<code>https://new-pipiyingyuan.com.cn
+</code></p><br><br><h3>全国危险废物处置能力突破2亿吨/年，安全处置率100%</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>https://new-sky-sports.com.cn
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局</h3><br><p>青岛暑期滨海旅游订单同比增长40%，海滨城市人气高涨。<br><br> | 来源：<code>https://new-tangxin.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>全球人工智能产业规模突破5万亿美元，中美占据主导地位。<br><br> | 来源：<code>https://new-tiantiandongman.com.cn
+</code></p><br><br><h3>北向资金大额增持美的集团，家电龙头外资持仓创历史新高</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>https://new-wang.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长。<br><br> | 来源：<code>https://new-wuyefuli.cn
+</code></p><br><br><h3>新希望异动拉升3.9%，生猪出栏量持续高增</h3><br><p>钙钛矿光伏组件效率破纪录，新型光伏标的拉升。<br><br> | 来源：<code>https://new-wuyeyingyuan.com.cn
+</code></p><br><br><h3>山西路桥放量上涨3.2%，山西交通基建投资加码</h3><br><p>产业基金大手笔增持国产EDA企业，助力核心技术研发突破。<br><br> | 来源：<code>https://new-xiangjiaoshipin.cn
+</code></p><br><br><h3>通用航空机场建设规划，通航运营板块集体上涨</h3><br><p>北向资金大额扫货恩捷股份1.4亿，隔膜龙头获外资流入。<br><br> | 来源：<code>https://new-xiangjiaoshipin.com.cn
+</code></p><br><br><h3>锂电设备海外订单爆发：产业链业绩弹性排序</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>https://new-xingfubao.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>大股东承诺6个月内不减持氢能标的，释放稳定股价信号。<br><br> | 来源：<code>https://new-xingkong-ent.com.cn
+</code></p><br><br><h3>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%</h3><br><p>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升。<br><br> | 来源：<code>https://new-xingkongyingshi.com.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>https://new-xiuxiushipin.com.cn
+</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https://new-yazhoujingpin.com.cn
+</code></p><br><br><h3>国内AI生成短视频用户破5亿，短视频行业迎来生产变革</h3><br><p>中国女子足球闯入世界杯四强，创造历史最佳战绩。<br><br> | 来源：<code>https://new-yazhoutiantang.cn
+</code></p><br><br><h3>吉利汽车新能源转型路径：传统车企电动化的成功案例</h3><br><p>政策性降息支持汽车消费，新能源汽车板块迎来定向利好。<br><br> | 来源：<code>https://new-yazhouwuma.cn
+</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>养老金新进AI芯片设计标的，布局大模型推理芯片赛道。<br><br> | 来源：<code>https://new-yazhouwuma.com.cn
