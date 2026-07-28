@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国男子足球队U23亚洲杯闯入四强，获得巴黎奥运资格</h3><br><p>通威股份全产业链成本控制：光伏硅料环节的盈利韧性。<br><br> | 来源：<code>https://new-hyou.com.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>全球新能源投资突破2万亿美元，中国占比超40%。<br><br> | 来源：<code>https://new-jinmantiantang.com.cn
+</code></p><br><br><h3>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓</h3><br><p>中国铁建异动拉升2.7%，海外项目落地加速。<br><br> | 来源：<code>https://new-jisutiyu.com.cn
+</code></p><br><br><h3>AI大模型企业启动申购，ToB付费转化率超行业平均水平</h3><br><p>海参价格单月上涨18%，海产养殖龙头盈利提升。<br><br> | 来源：<code>https://new-jiujiujiu.com.cn
+</code></p><br><br><h3>故宫博物院年接待观众突破2000万人次，文创产品营收超20亿</h3><br><p>丽江暑期民宿入住率达95%，云南文旅市场持续回暖。<br><br> | 来源：<code>https://new-jiujiure.com.cn
+</code></p><br><br><h3>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨</h3><br><p>白酒批价连续上涨，高端白酒板块盈利弹性释放。<br><br> | 来源：<code>https://new-jiujiushipin.com.cn
+</code></p><br><br><h3>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%</h3><br><p>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复。<br><br> | 来源：<code>https://new-jiujiuyingshi.com.cn
+</code></p><br><br><h3>中科院紫东太初大模型2.0发布，全模态能力国际领先</h3><br><p>贵州茅台前三季度营收破千亿，业绩预告超预期。<br><br> | 来源：<code>https://new-jiujiuyingyuan.com.cn
+</code></p><br><br><h3>中国平安涨超3.4%，寿险新业务价值增速转正</h3><br><p>全国学生体质健康达标率提升至92%，青少年身体素质增强。<br><br> | 来源：<code>https://new-lala.com.cn
+</code></p><br><br><h3>游资顶级席位打板璞泰来1.7亿，锂电材料标的获热炒</h3><br><p>全国演出市场线下消费人次破亿，周边产品营收占比提升。<br><br> | 来源：<code>https://new-lebeijing.com.cn
+</code></p><br><br><h3>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本</h3><br><p>科达利放量拉升4.7%，锂电池结构件订单饱满。<br><br> | 来源：<code>https://new-ledongsports.com.cn
+</code></p><br><br><h3>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健</h3><br><p>隆基绿能底部抬升，上升通道内的低吸窗口显现。<br><br> | 来源：<code>https://new-leisi.com.cn
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿</h3><br><p>休闲食品开启涨价潮，食品加工板块盈利弹性释放。<br><br> | 来源：<code>https://new-lulu.com.cn
+</code></p><br><br><h3>阿里通义千问3.0版本上线，代码生成能力超越国际同类产品</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>https://new-lulushe.com.cn
+</code></p><br><br><h3>二十国集团峰会召开，达成全球经济治理新共识</h3><br><p>交控科技异动拉升4.5%，城轨信号系统订单爆发。<br><br> | 来源：<code>https://new-luotimeinu.com.cn
+</code></p><br><br><h3>安琪酵母海外收入爆发，单季业绩预告超预期</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>https://new-madouchuanmei.com.cn
+</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>https://new-meiridasai.com.cn
+</code></p><br><br><h3>苏州园林暑期游客量突破150万人次，江南古典园林游受青睐</h3><br><p>宝钢股份涨超3.1%，板材价格企稳回升。<br><br> | 来源：<code>https://new-mg-tiyu.com.cn
+</code></p><br><br><h3>中国中车涨超3.3%，海外轨交订单持续落地</h3><br><p>储能行业需求爆发：产业链上下游的景气度传导逻辑。<br><br> | 来源：<code>https://new-mianfeikanpian.com.cn
+</code></p><br><br><h3>机构席位联手买入三一重工3亿，工程机械龙头获资金布局</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://new-milesports.com.cn
